@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+Please follow me on Twitter [@NicholasTau](https://twitter.com/NichoIasTau), or you can reach me 📫: hi@inico.me
 <!--
 **demonnico/demonnico** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
